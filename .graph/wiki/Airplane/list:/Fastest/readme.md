@@ -7,3 +7,6 @@ https://www.reddit.com/r/Warthunder/comments/nnd8lp/what_is_the_fastest_jet_in_g
 
 # F-111F
 Home: https://wiki.warthunder.com/unit/f_111f
+
+video:
+- [F-111 Aardvark: Low-Altitude Menace](https://youtu.be/alek9G6koqU)
