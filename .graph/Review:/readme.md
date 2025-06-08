@@ -1,3 +1,4 @@
 - [War Thunder is designed to make you stupid](https://youtu.be/Aa71aHSza-A)
 - [Secrets & Lies of War Thunder](https://youtu.be/sh2IKXoFPws)
 - [The War Thunder Situation](https://youtu.be/RzCxXu3U3Z0)
+- [Bomber Problem of War Thunder](https://youtu.be/fhDDaenePUY)
