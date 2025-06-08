@@ -1,0 +1,1 @@
+- [War Thunder is designed to make you stupid](https://youtu.be/Aa71aHSza-A)
