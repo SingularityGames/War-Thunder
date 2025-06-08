@@ -1,1 +1,2 @@
 - [War Thunder is designed to make you stupid](https://youtu.be/Aa71aHSza-A)
+- [Secrets & Lies of War Thunder](https://youtu.be/sh2IKXoFPws)
